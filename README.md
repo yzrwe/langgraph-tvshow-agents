@@ -54,5 +54,3 @@ Example output (real run): for *Stranger Things*, the system returned
 costs, and pivot to spin-offs while the brand is at its peak.
 
 ---
-
-*Regis Yizerwe — yizerwer@gmail.com*
